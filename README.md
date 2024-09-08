@@ -22,7 +22,7 @@ I have many things planned from now to the end of   ]                    Here ar
                                                     ]     1. pixiv.net ----- https://www.pixiv.net/en/users/59846903
   **SO BE ON THE LOOK OUT FOR IT ! ! ! !**          ]     2. youtube.com --- https://m.youtube.com/@shlipon4927
 ALL of 1 (one) person will be dragged into making   ]     3. website ------- _**I N    C O N S T R U C T I O N  **_
-something "wingsbase" related with me !             ]     4. mail ---------- ponpon.wingsbase@proton.me
+something "wingsbase" related with me !             ]    
     -->  what fun, i cannot wait ~ ~ <3             ]
 ____________________________________________________]  ============================================================
                 
